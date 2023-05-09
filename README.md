@@ -1,5 +1,10 @@
 # Jan Krieger  
 
+## Kontaktdaten
+Wohnort: 7534 Olbendorf, Österreich
+Tel.: +43 677 617 53 445
+EMail: KriegerJanIT@gmail.com
+
 ## Zusammenfassung
 
 * 8+ Jahre Erfahrung in
